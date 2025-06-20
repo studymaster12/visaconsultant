@@ -4,7 +4,7 @@ Looking to pursue higher education abroad or settle in a new country? Study Mast
 
 **Study Visa Consultants in Chandigarh You Can Trust**
 
-With thousands of successful visa approvals, we are regarded as one of the most reliable study visa consultants in Chandigarh. Our experienced counsellors help students choose the right course and country, ensuring a smooth and successful visa process. Whether you’re applying for your **[student visa in Chandigarh**](https://studymaster.co.in/) or planning ahead for post-study options, we guide you at every step.
+With thousands of successful visa approvals, we are regarded as one of the most reliable study visa consultants in Chandigarh. Our experienced counsellors help students choose the right course and country, ensuring a smooth and successful visa process. Whether you’re applying for your [**student visa in Chandigarh**](https://studymaster.co.in/) or planning ahead for post-study options, we guide you at every step.
 
 ![study master 11](https://github.com/user-attachments/assets/9c2eebce-128d-4848-a408-7119e2163423)
 
@@ -14,7 +14,7 @@ Dreaming of studying in the USA or UK? Our team of expert USA study visa consult
 
 **Study Visa Experts with Global Reach**
 
-Whether it's Canada, Australia, USA, UK, or Europe, our global network of partner institutions ensures you get access to the best programs worldwide. If you're searching for affordable and transparent **[study visa Chandigarh**](https://studymaster.co.in/) services, Study Master is your trusted guide to academic success abroad.
+Whether it's Canada, Australia, USA, UK, or Europe, our global network of partner institutions ensures you get access to the best programs worldwide. If you're searching for affordable and transparent [**study visa Chandigarh**](https://studymaster.co.in/) services, Study Master is your trusted guide to academic success abroad.
 
 **Best IELTS Coaching in Chandigarh**
 
@@ -34,8 +34,10 @@ Interested in launching your business in North America? We specialize in the Sta
  
 **Get Started Today!**
 
-Whether you need IELTS coaching in Chandigarh, expert guidance from UK or **[USA study visa consultants in Chandigarh**](https://studymaster.co.in/study-in-usa/), or want to explore global opportunities, Study Master is your most reliable partner. We’re here to simplify your study and immigration journey with personalized support and unmatched expertise.
+Whether you need IELTS coaching in Chandigarh, expert guidance from UK or [**USA study visa consultants in Chandigarh**](https://studymaster.co.in/study-in-usa/), or want to explore global opportunities, Study Master is your most reliable partner. We’re here to simplify your study and immigration journey with personalized support and unmatched expertise.
 
 **📞 Call Now:** +91 87108 26000
+
 **📍 Visit Us:** SCO 78-79 first floor, 17C, Sector 17, Chandigarh, 160017
+
 **🌐 Website:** https://studymaster.co.in/
